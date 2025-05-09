@@ -1,5 +1,5 @@
-#Blah Blah J
+#Blah Blah
 
-By Grace w John
+By Grace :)
 
 Figures
